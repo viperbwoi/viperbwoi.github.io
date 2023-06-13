@@ -1,2 +1,2 @@
 # devx-8.github.io
-https://Gsbxh.github.io
+https://viperbwoi.github.io
